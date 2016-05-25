@@ -5,3 +5,4 @@ Gah my work environment is paperless so I can't bring a book!!! Must have WoT du
 
 **************************************************************
 https://www.solitr.com/
+https://gw2efficiency.com/gathering/permanent-nodes
